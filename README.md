@@ -10,6 +10,6 @@
 - 🤔 I’m looking for help with nothing atm!
 - 💬 Ask me about my fursonas and chickens!
 - 📫 How to reach me: Through Twitter is the best way!
-- 😄 Pronouns: He/Theey!
+- 😄 Pronouns: He/They!
 - ⚡ Fun fact: I'm 21 and scared of what I'm doing.
 
