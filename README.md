@@ -6,10 +6,9 @@
 
 - 🔭 I’m currently just trying to exist, scrapped my project all to hell.
 - 🌱 I’ve stopped learning C++ I think?
-- 👯 I’m just kinda here cus friends.
+- 👯 I’m just kinda here cus yeah.
 - 🤔 I’m looking for help with nothing atm!
 - 💬 Ask me about my fursonas and chickens!
 - 📫 How to reach me: Through Twitter is the best way!
-- 😄 Pronouns: He/Him!
-- ⚡ Fun fact: I'm 22 and scared of what I'm doing.
+- 😄 Pronouns: He/They!
 
